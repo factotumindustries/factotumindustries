@@ -1,0 +1,6 @@
+- Hi, I’m @factotumindustries aka Antony N. Lord
+- I'm in to prototyping, LED art and audio sculptures
+- Essentially Im an artist trapped in a scientist's body
+- My goal is to realize my potential
+- You can also find me on Instagram as @factotumindustries
+- Check out my website at https://www.factotumindustries.com
